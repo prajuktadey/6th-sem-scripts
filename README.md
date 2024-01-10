@@ -1,0 +1,1 @@
+# 6ths-sem-scripts
